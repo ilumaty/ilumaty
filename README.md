@@ -1,3 +1,4 @@
-Hi, I'm here for my education in tech.
-I'm aiming to become a high-performance developer, reaching for the stars! Thanks for watching, and let's grow together as a community.
-Cactus Ilu
+🌵 Hi, I’m Cactus Ilu!
+🌙 Exploring the universe of tech and aiming for the stars.
+🪐 Aspiring to be a high-performance developer, creating impactful solutions.
+✨ Let’s grow and innovate together.
